@@ -3,7 +3,9 @@
 ###  Josh Whitehouse
 January, 31 2018
 ###### In class assignment 5, CSC 174
+Despite a tough loss last night, the Patriots remain an unbelievable team with unbelievable players.  I am incredibly proud of how far they have come and how far they will continue to go.  As always, **Go pats.**
 
+---
 
 My Top Three Favorite Patriots Players.
 
